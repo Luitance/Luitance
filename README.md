@@ -1,0 +1,2 @@
+Yup this is the first time I'm using Github and In the meantime I will just commit copied project Responsory and yeah I'm teribly sorry for copied one of your projects please accept my apologize (really).
+well I'm still halfway to become an actual Programmer (which I have to study more to become an intermidate *sobs*) well thats all that I can say and I'm really sorry for the copied projects please forgive me:,).
